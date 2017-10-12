@@ -6,8 +6,11 @@ categories: kunst
 ---
 
 ## Saarineni maja
+
 Arhidekt: Eliel Gottlieb Saarinen (1873-1950)
+
 Valminud: 1912
+
 Asukoht: Suur-Karja 23
 
 ![Pilt](/images/saarineni_maja.jpg)
