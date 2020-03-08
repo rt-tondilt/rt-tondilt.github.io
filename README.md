@@ -1,2 +1,2 @@
 # rt-tondilt.github.io
-Kunsti ja muu
+See kunstiblogi tuleks ära kustututatda.
