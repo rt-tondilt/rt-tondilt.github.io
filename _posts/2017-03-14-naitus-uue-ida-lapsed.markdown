@@ -13,7 +13,7 @@ Maalinäitus uue ida lapsed asus Kunstihoone galeriis ja Tallinna Linnagaleriis.
 
 Näituse kuraator Siim Preimann andis Vikerraadios [intervjuu][intervjuu], kus ta selgitab täpsemalt näituse olemust. See oli üsna kasulik arvestades seda, et mina pidasin "Uue ida lasteks" esialgu nõukogude võimu all olnud riike.
 
-Kunsti puhul on konks mõistmises. Mõnel teosel on mõte ja mõnel ei ole. Inimesed võivad mõista teost erinevalt. Mõnel teosel on peidetud sõnumid. Minule üldiselt meeldivad tugeva ja selgestimõistetava sõnumiga teosed. Antud näituse puhul hakkasin ma ilmselt üle mõtlema. "Kas seal on midagi peidus." "Kas need laigud tähendavad midagi." Selgus muidugi, et püüti edastada üldist tunnet, mis seostub selle mineviku perioodiga. Siim Preimann rääkis oma intervjuus palju üldist juttu inimeste erinevatest vaadetest - asjast, mida on minul raske mõista, kuna ma ei poolda tõe hägusust.
+Kunsti puhul on konks sipelgates. Mõnel teosel on mõte ja mõnel ei ole. Inimesed võivad mõista teost erinevalt. Mõnel teosel on peidetud sõnumid. Minule üldiselt meeldivad tugeva ja selgestimõistetava sõnumiga teosed. Antud näituse puhul hakkasin ma ilmselt üle mõtlema. "Kas seal on midagi peidus." "Kas need laigud tähendavad midagi." Selgus muidugi, et püüti edastada üldist tunnet, mis seostub selle mineviku perioodiga. Siim Preimann rääkis oma intervjuus palju üldist juttu inimeste erinevatest vaadetest - asjast, mida on minul raske mõista, kuna ma ei poolda tõe hägusust.
 
 ![Korvad](/images/uue-ida-lapsed/korvad.jpg)
 
